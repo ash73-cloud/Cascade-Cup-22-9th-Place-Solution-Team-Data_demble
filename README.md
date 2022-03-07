@@ -14,6 +14,6 @@ We have thoroughly enjoyed participating in the competition. Please hold more su
 * [Kaggle Competition Link ](https://www.kaggle.com/c/cascade-cup-22)
 * [Results](https://www.linkedin.com/posts/caciitg_cascade-cup-22-winners-activity-6901896282709852160-41gY)
 
-# Reach us on LinkedIn [If You Like Our Work]
+# Connect With us on LinkedIn [If You Like Our Work]
 * [Ashis Kumar Parida](https://www.linkedin.com/in/ash73-cloud/)
 * [Alyal Samal](https://www.linkedin.com/in/alyal077/)
